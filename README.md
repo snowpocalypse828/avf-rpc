@@ -51,8 +51,8 @@
 Avalanche Freight is a TruckersMP Virtual Trucking Company founded in 2025.  
 We’re proud to represent a professional and tight-knit driving community.
 
-🔗 [Apply Today!](https://avalanchefreighttm.wixsite.com/avf-tmp)  
-🔗 [All AVF Links](https://linktr.ee/AvalancheFreight)
+🔗 [Join Today!](https://discord.gg/avalanchefreight)  
+🔗 [Website](https://avalanchefreightvtc.com)
 
 ---
 
